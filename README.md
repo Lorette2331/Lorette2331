@@ -2,6 +2,7 @@
 
 ### A propos de moi
 Étudiante en DEUST Webmaster et Métiers de l'Internet à l'ULCO de Calais et alternante en communication à l'école des métiers du sport à Boulogne. Je suis passionné par la communication et le graphisme et plus tard, je souhaiterais devenir community manager. 
+Je suis passionnée par la lecture et l'écriture. Je partage mes histoires sur la plateforme Wattpad.
 
 ### Mes missions d'alternance
 
@@ -15,7 +16,8 @@
 Janvier à mai 2025 : Stage en communication chez Bulle d'Aquarelle, une entreprise qui propose des ateliers d'aquarelle et de bien-être. Cette cexpérience m'a permis d'obetnir de nombreuses compétences. L'entreprise 
 
 **Dans l'animation :**
-2022 à 2025 : Je suis animatrice depuis 2022, depuis je travaille dans les centres de loisirs pratiquement toutes les vacances scolaires.
+
+2022 à 2025 : Je suis animatrice depuis 2022, depuis je travaille dans les centres de loisirs pratiquement à toutes les vacances scolaires.
 
 ## 🤝 Contactez-moi
 

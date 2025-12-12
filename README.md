@@ -4,7 +4,10 @@
 Alternante en communication à l'école des métiers du sport à Boulogne.
 Étudiante en DEUST Webmaster et Métiers de l'Internet à l'ULCO de Calais.
 
+### Mes missions d'alternance
 
+**Gestion des réseaux sociaux :** J'anime les réseaux sociaux de l'école en créant des visuels engageants pour promouvoir leurs formations.
+**Gestion des événements :** J'organise les forums, les journées portes ouvertes, les remises des diplômes.
 
 Je suis passionné par la communication et le graphisme.
 

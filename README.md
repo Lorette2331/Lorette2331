@@ -10,11 +10,11 @@
 
 ### Mes expériences 
 
-***Dans la communication :**
+**Dans la communication :**
 
 Janvier à mai 2025 : Stage en communication chez Bulle d'Aquarelle, une entreprise qui propose des ateliers d'aquarelle et de bien-être. Cette cexpérience m'a permis d'obetnir de nombreuses compétences. L'entreprise 
 
-***Dans l'animation :**
+**Dans l'animation :**
 2022 à 2025 : Je suis animatrice depuis 2022, depuis je travaille dans les centres de loisirs pratiquement toutes les vacances scolaires.
 
 ## 🤝 Contactez-moi

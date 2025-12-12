@@ -1,16 +1,18 @@
-## Hi there 👋
+# Je suis Lorette Dassonneville
 
-<!--
-**Lorette2331/Lorette2331** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### A propos de moi
+Alternante en communication à l'école des métiers du sport à Boulogne.
+Étudiante en DEUST Webmaster et Métiers de l'Internet à l'ULCO de Calais.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+Je suis passionné par la communication et le graphisme.
+
+Plus tard, je voudrais devenir community manager. 
+## 🤝 Contactez-moi
+
+Je suis toujours enthousiaste à l'idée d'échanger sur la communication, le sport ou les dernières tendances en design. N'hésitez pas à me contacter !
+
+* **✉️ Email Pro :** lorettedassonneville@gmail.com
+* **👔 LinkedIn :** www.linkedin.com/in/lorette-dassonneville-57918a317
+---
